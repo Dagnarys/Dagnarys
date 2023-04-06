@@ -1,7 +1,97 @@
-- 👋 Hi, I’m @Dagnarys
-- 👀 I’m interested in learning code
-- 🌱 I’m currently learning code
-- 📫 How to reach me @dagnarys tg
-- Don't be afraid to start learning something new
-- Don't leave work if you don't finish yet
-- Be kind always
+Hi, I’m @Dagnarys
+Потерялся в репах
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Ауф
+
